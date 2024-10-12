@@ -14,7 +14,7 @@ Whether you're considering installing a new garage door or needing repair servic
 
 With the right approach and regular maintenance, you can live well knowing your garage door remains functional and secure, adding value and longevity to your property in Miami. Don't let common garage door issues disrupt your daily routine; reach out to us today for immediate assistance, and let our trusted team help you navigate any challenges you may face.
 
-### Areas We Serve
+## Areas We Serve
 - Miami
 - Hialeah
 - Miami Beach
